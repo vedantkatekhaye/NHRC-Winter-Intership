@@ -4,7 +4,7 @@ The NHRC Winter Internship (also called Winter Internship Programme – WIP) is 
 
 I have been shortlisted and selected among the 80 candidates out of 1485 applicants nationwide for the Winter Internship Programme (WIP) 2025 at the National Human Rights Commission (NHRC).
 
-**DURATION**: Typically 4 weeks (e.g., 15th December to 9th January) during the winter break.
+**DURATION**: 4 weeks - 15th December to 9th January.
 
 **MODE**: Offline / on-site at the NHRC offices in New Delhi.
 
