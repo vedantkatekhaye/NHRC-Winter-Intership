@@ -24,5 +24,7 @@ Film screenings and discussions on human rights themes.
 
 During the internship, I Worked in a 10-member team on research, analysis, and presentation and contributed to a group research project titled “Rights vs Realities: Deconstructing Consumer Rights and Duties in the Digital Era,” which secured 3rd position among all presentations. 
 
-![Internship Invitation Letter](https://github.com/user-attachments/assets/d679556b-c9a9-41e1-a85e-9f32fcb46e72)
+![Certificate Of Completion](https://github.com/user-attachments/assets/ed5ba78f-11d6-4b56-b735-0aca9bb2744d)
+
+![Certificate of Appreciation](https://github.com/user-attachments/assets/cfa33804-b570-4255-b8b6-4da7b6a85c82)
 
